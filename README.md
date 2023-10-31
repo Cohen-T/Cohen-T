@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Cohen-T
+- 👀 I’m interested in going to the bathroom
+- 🌱 I’m currently learning how to use the toilet
+- 💞️ I’m looking to collaborate on building stuff
+- 📫 How to reach me: don't
